@@ -1,5 +1,7 @@
 # RedressingCapitalism
 
+### or why capitalism may not be obsolete, yet!
+
 Capitalism, as we know it, has served the economy in much better ways than any other economic system, but that was then. Now, we ask: Can capitalism survive the challenges that humanity will face in the 21st century, serving societies in the same successful ways? How can capitalism adapt itself to cope with the future?
 
 Let's start by taking a brief glance at some of those challenges and how they could collide in a perfect storm and then we will examine a redress, that of *Indispensable Philanthropic Capitalism*.
